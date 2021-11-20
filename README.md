@@ -19,7 +19,7 @@ https://philiphacker.in/p/termux <br/><br/>
 
 <h3> For Query </h3>
 
-<b>Join our WhatsApp or Telegram Group,</b>
+<b>Join our WhatsApp or Telegram Group,contact:7569375463</b>
 
 https://philiphacker.in/p/whatsapp <br/>
 https://philiphacker.in/p/telegram <br/><br/>
